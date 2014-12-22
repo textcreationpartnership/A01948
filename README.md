@@ -36,9 +36,15 @@ This keyboarded and encoded edition of the
 ##Content Summary##
 
 #####Front#####
-The state-mysteries of the Iesuites, by way of questions and answers. Faithfully extracted out of th
+
+1. TO THE RIGHT VVORTHY, AND euery way moſt accompliſhed, Sr. Thomas Penyſtone Knight and Baronett, my euer-honored Maſter.
+
+1. TO THE READER.
+Page 49. Line 17. for ſom any, reade ſo many.
 #####Body#####
-The state-mysteries of the Iesuites, by way of questions and answers. Faithfully extracted out of th
+
+1. THE MYSTERIES OF THE IESVITES, by Queſtions and Anſwers.
+
 **Types of content**
 
   * There are 4 **verse** lines!
